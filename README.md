@@ -1,1 +1,1 @@
-# workshops2
+# workshops for kids
